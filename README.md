@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @PEPEtheFROG2310
-- 👀 I’m interested in Forg
+- 👀 I’m interested in Frog
 - 🌱 I’m currently learning Jumping
 - 💞️ I’m looking to collaborate on frogy business
 - 📫 How to reach me (jump duh)
